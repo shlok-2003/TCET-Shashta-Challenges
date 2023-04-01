@@ -1,0 +1,1 @@
+Here are all the questions created by me for the Competitive Programming contest held by Training and Placement Cell ()[DTCET[C[D).[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D**Trainging and Placement Cell ()[DTCET)**.
